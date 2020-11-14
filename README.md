@@ -1,2 +1,0 @@
-# veruscoin
-# veruscoin
